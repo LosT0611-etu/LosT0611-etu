@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LosT0611-etu
 - 👀 I’m interested in music and programming
 - 🌱 I’m currently learning at the UPHF
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on school projects
 - 📫 How to reach me my discord: lostoff
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I look homosexual but I'm hetero asf
